@@ -23,6 +23,9 @@ http://blog.naver.com/dunkyoo/220750504581
 유자유 김치떡볶이
 http://blog.naver.com/01047542794/220714663207
 
+싸움의 고수
+http://blog.naver.com/song2758/220514508375
+
 
 ##*이공대후문
 
@@ -37,6 +40,7 @@ http://blog.naver.com/1ssseohyun1/220757768150
 
 하이픈
 http://blog.naver.com/cocolove93/220087864289
+
 
 
 ##*법대후문
